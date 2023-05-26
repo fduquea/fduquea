@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning at **[42Porto](https://www.42porto.com/).**
 
-- 📫 How to reach me: **fduque-a@student.42porto.com**
+- 📫 E-mail me at **fduque-a@student.42porto.com**
 
 - ⚡ Fun fact: **I play the piano!**
 
