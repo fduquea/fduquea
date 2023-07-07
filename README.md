@@ -12,5 +12,5 @@
 
 🌟 Trying to improve my coding skills every day!
 
-📧 You can reach me at filipe.duke.azevedo@gmail.com.
+📧 You can reach me at fduque-a@student.42porto.com.
 Let's connect and learn together! 🤝
